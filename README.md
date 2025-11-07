@@ -1,0 +1,1 @@
+# PEGACPLSA24V1-Exam-Guide-How-to-Pass-the-Certified-Pega-Lead-System-Architect-24-Exam
